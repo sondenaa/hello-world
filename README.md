@@ -1,2 +1,3 @@
 # hello-world
 My first repository on Github
+So, I'm back to square one, that I purposely left 8 years ago, in fear of getting stuck behind a computer. However, it seems like being stuck behind a computer, at least parts of the day is inevitable these days...so better do something I like behind a screen than something I dont like. Gosh my toch method skills are getting ghetto-better as well...
